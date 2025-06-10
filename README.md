@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects related to data analysis, machine learning, and business analytics. I'm particularly interested in projects that involve real-world applications and have a positive impact.
 - Tableau Profile: https://public.tableau.com/app/profile/amoghvarsh.kulkarni/vizzes
 - 📫 How to reach me: 
-  - Email: amoghk96@umd.edu
+  - Email: aakamogh10@gmail.com
   - LinkedIn: https://www.linkedin.com/in/amoghvarshkulkarni
     
 
